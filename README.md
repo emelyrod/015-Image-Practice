@@ -1,1 +1,0 @@
-# 015-Image-Practice
